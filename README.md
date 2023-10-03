@@ -1,5 +1,5 @@
-meu nome e daniel
-tenho 16 anos de idade
-torço pro corinthians
-não gosto de converca 
-não gosto de sair de casa
+- 🧢 Meu nome e daniel
+- 🔞 Tenho 16 anos de idade
+- 🦅Torço pro corinthians
+- 🙅‍♂️Não gosto de converca 
+- 🙅‍♂️Não gosto de sair de casa
